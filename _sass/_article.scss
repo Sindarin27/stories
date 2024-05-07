@@ -27,7 +27,8 @@
 }
 
 .post p:first-of-type,
-.post h2 + p {
+.post h2 + p,
+.post p:has(+ hr) {
   text-indent: 0;
 }
 
