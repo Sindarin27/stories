@@ -42,3 +42,35 @@ Misschien is dat de oplossing. De hospitaler heeft Vidi niet kunnen redden met f
 
 "En als het gevaarlijk is?"
 
+"Weet je wat ik gedaan heb toen ik vorige week plotseling oog in oog stond met veenlijken? Ik riep gewoon heel hard ZMAJEVIT en binnen een minuut stond er een schildmuur voor me."
+
+"...ik wil geen geweld veroorzaken."
+
+"Maar zo ver zal het vast niet komen! Weet je, hier is het ding. Wat ik dus gehoord heb", zegt ze terwijl ze opnieuw een stap in mijn persoonlijke ruimte zet, "is dat er morgenavond een ritueel plaats zal vinden, een nieuw begin van de groep. Dus we kunnen gewoon eens gaan kijken. Dan kan je altijd nog zeggen dat het niks voor je is!"
+
+Des te meer Valerija praat, des te meer ik opwarm aan het idee. Een groep vrouwen die samen kennis willen delen. Maar er is nog één ding waar ik me zorgen over maak...
+
+“Hoe groot is de kans dat er iemand gewond raakt? Moet ik mijn mand met verband meenemen? Is er een kans dat ik gewond raak? Dat jij gewond raakt?”
+
+“Geen zorgen over maken! Ik denk dat de kans op gewonden klein is.”
+
+“Klein? Er is dus een kans?”
+
+“Jaaaa…..” Het klinkt alsof Valerija eromheen probeert te draaien, maar ik wacht, en uiteindelijk zegt ze wat ik wil horen. “Oké, de kans dat we ons hoofd verliezen is er niet. Of, nou ja, hooguit één op tien.”
+
+Dat… nou ja, in het ergste geval roepen we om de Zmajevit. Maar ik heb het idee dat ze nog steeds iets probeert achter te houden. “Hoe zit het met andere wonden?”
+
+“Daar hoef je je geen zorgen over te maken…” Valerija neemt steeds meer afstand tijdens dit deel van het gesprek, en dat doet niks tegen mijn zorgen. “Vier op tien voor een schrammetje. Vijf op tien, misschien. Maar niks wat een stuk verband niet kan verhelpen! Oké, zes op tien.” Oh. Maar aan de andere kant, dit is dé kans om informatie te verzamelen. Daarnaast, Valerija is erbij. Ik sta er niet alleen voor. Zo'n wond geneest wel weer.
+
+Het moment dat ik in wil stemmen klinkt er geritsel uit de struiken bij het kerkhof. In plaats daarvan schreeuw ik luid “WIE IS DAAR?” We stappen uit elkaar, het moment afgelopen. Voorzichtig beweegt Valerija zich richting het kerkhof, en ik volg haar. “Zou het die Wiedergänger zijn waar Myros het over had…?”
+
+---
+
+
+“Sssst!”, reageren de struiken. Drie andere meiden komen tevoorschijn uit de bosjes en gebaren naar ons om ons te verstoppen. “Doe dat licht weg! Zien jullie niet wat voor romantisch daar gebeurd?” Ze wijzen naar twee silhouetten aan de oever van de Lech, schaduwen in het licht van de maan.
+
+“Wie zijn het?” vraag ik fluisterend. Valerija fluistert het door naar het eerste dienstmeisje, die fluistert weer iets terug, en Valerija vertelt me dat het vrouw Vreile is samen met een ridder.
+
+De twee omhelzen elkaar, en de meisjes fluisteren verder. “Dat is een huwelijksaanzoek aan vrouw Vreile! Van een mooie ridder! Och, zo romantisch…”
+
+Eindelijk heb ik het gevoel dat ik me hier kan ontspannen. Dit is hoe het hoort te gaan. Niet het ruzieën en vechten en de dood van eerder op de avond, maar de rust en stilte en mensen die elkaar lief hebben. Kon het maar altijd zo zijn...
