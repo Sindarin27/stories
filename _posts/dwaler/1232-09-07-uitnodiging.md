@@ -46,7 +46,7 @@ Misschien is dat de oplossing. De hospitaler heeft Vidi niet kunnen redden met f
 
 "...ik wil geen geweld veroorzaken."
 
-"Maar zo ver zal het vast niet komen! Weet je, hier is het ding. Wat ik dus gehoord heb", zegt ze terwijl ze opnieuw een stap in mijn persoonlijke ruimte zet, "is dat er morgenavond een ritueel plaats zal vinden, een nieuw begin van de groep. Dus we kunnen gewoon eens gaan kijken. Dan kan je altijd nog zeggen dat het niks voor je is!"
+"Maar zo ver zal het vast niet komen! Weet je, hier is het ding. Wat ik dus gehoord heb", zegt ze terwijl ze opnieuw een stap in mijn persoonlijke ruimte zet, "is dat er morgenavond, om middernacht, een ritueel plaats zal vinden bij Diepdelver. Een nieuw begin van de groep. Dus we kunnen gewoon eens gaan kijken. Dan kan je altijd nog zeggen dat het niks voor je is!"
 
 Des te meer Valerija praat, des te meer ik opwarm aan het idee. Een groep vrouwen die samen kennis willen delen. Maar er is nog één ding waar ik me zorgen over maak...
 
