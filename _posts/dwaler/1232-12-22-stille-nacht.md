@@ -6,11 +6,11 @@ Nog niemand had iets vernomen uit het dorp sinds het lawaai begonnen was. Marco,
 
 De lichtjes zijn weg. Alles wordt donker. Het laatste wat ik zie is Valerija en Marco die blijven dansen. Hebben ze me wel gezien? Ik had nog wel zo hard gefeest. Ik had nog wel gewisseld van kleding met Mariana. Ik droeg nog wel een krans. Ik...
 
-<sub><sup>...naar ons kamp?</sup></sub>
+<small>...naar ons kamp?</small>
 
 Ik probeer te zeggen dat we naar de Sidhe moeten, want Dana is moe en ik wil haar niet altijd lastig valle... Ze horen me niet.
 
-<sup><sub>...MILJANA, luister naar m... DANA! Ze is ...</sub></sup>
+<small>...MILJANA, luister naar m... DANA! Ze is ...</small>
 
 Ik zie een licht. Een heel groot licht, heel dichtbij.
 
