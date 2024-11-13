@@ -1,5 +1,5 @@
 ---
-title: Stille nacht
+title: Wildejacht
 date: 1232-12-22 23:59
 ---
 Nog niemand had iets vernomen uit het dorp sinds het lawaai begonnen was. Marco, Valerija, en ik besloten dat het tijd was dat iemand een kijkje nam. Zodra we in de buurt kwamen zagen we die lichtjes. Die vreselijke lichtjes. En die wezens met wapens. We dansten zo hard als we konden om erdoorheen te komen. Ineens stond ik oog in oog met zo'n fee, alleen. Ik bleef doordansen. Ik maakte een draai. Die kan ik niet afmaken. Er steekt een speer door mijn buik. Drie andere speren komen nu van voren.
